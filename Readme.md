@@ -1,0 +1,1 @@
+Content insight V2 folder only for non-commercial use.
